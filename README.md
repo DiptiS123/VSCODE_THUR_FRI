@@ -1,0 +1,1 @@
+# VSCODE_THUR_FRI
